@@ -1,0 +1,2 @@
+# Posicionamiento por Búsquedas Pagadas
+
